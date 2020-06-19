@@ -7,3 +7,5 @@ games, Movies, and fan-written fiction. His special ability is the art of deduct
 * heavy pipe smoker
 * occasional opiate abuse
 
+> It is a capital mistake to theorize before one has data. Insensibly one begins to twist facts to suit theories, instead of theories to suit facts.
+
