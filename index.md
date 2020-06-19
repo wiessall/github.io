@@ -7,3 +7,4 @@ games, Movies, and fan-written fiction. His special ability is the art of deduct
 * heavy pipe smoker
 * occasional opiate abuse
 
+<img src="https://uconn-today-universityofconn.netdna-ssl.com/wp-content/uploads/2014/07/sherlock-holmes-basil-rathbone.jpg"/>
